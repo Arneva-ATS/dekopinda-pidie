@@ -1,1 +1,1 @@
-# dekopinda-pidie
+# dekopinda-karanganyar
